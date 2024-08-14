@@ -1,4 +1,4 @@
-**The Challengers Question!**
+<u>The Challengers Question!</u>
 
 The Challengers Question is a deeply meaningful tradition designed to inspire believers and enrich their faith in the divine. At its core, it serves as a profound tool for reflection and spiritual growth, challenging individuals to delve beyond superficial understanding and engage with the deeper essence of their beliefs.
 
